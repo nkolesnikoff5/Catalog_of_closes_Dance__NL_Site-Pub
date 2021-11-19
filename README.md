@@ -1,2 +1,1 @@
-Dance NL Dance Closes WebSite
-Catalog of closes
+Catalog of closes for Dance NL website. 
